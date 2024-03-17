@@ -25,4 +25,4 @@ Get in Touch
 
 Let's Connect!
 
-I'm always interested in connecting with fellow developers, collaborating on projects, or discussing innovative ideas. Feel free to reach out to me via email at [rijosh.ravi@email.com].
+I'm always interested in connecting with fellow developers, collaborating on projects, or discussing innovative ideas. Feel free to reach out to me via email at rijosh.ravi@email.com.
